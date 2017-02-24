@@ -19,8 +19,8 @@ As a mysterious thriller, "A Drop in the Ocean" seeks to keep its listeners on t
 
 ## Significance of speech
 A well-written script is vital to a podcast's success, especially for fictional stories like these two. What made these podcasts so great was the authenticity of the conversations. The characters were conversing realistically by awkwardly stumbling over words and accidentally talking over one another. Here are some of the conversations from both podcasts:
-- Telephone conversation while walking through the airport ("Homecoming")
-- One-on-one conversation with a recovering military client ("Homecoming")
+- An assistant speaking with an angry boss on the telephone in a busy airport ("Homecoming")
+- One-on-one therapy session with a recovering military client ("Homecoming")
 - A newly promoted submarine captain calling his crew ("A Drop")
 - Two men secretly scheming behind the captain's back ("A Drop")
 Another important factor of podcasts is a character's tone of voice. Without being able to see any types of body language, actors have to portray emotions through not only what they say, but how they say it.
