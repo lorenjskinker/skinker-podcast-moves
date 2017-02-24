@@ -15,7 +15,7 @@ Since podcasts contain no visuals, obviously, they must produce sights through a
 - Listening to Sonar (A Drop)
 - Water bursting into the sub (A Drop)
 
-As a mysterious thriller, "A Drop in the Ocean" seeks to keep its listeners on the edge of their seats. Accompanied by superb acting and an ingenious plot, the powerful sounds lead the listener to involuntarily fall into the podcast's purposeful trap: one's imagination. Once one begins to imagine the scenes of the story, visions envelope
+As a mysterious thriller, "A Drop in the Ocean" seeks to keep its listeners on the edge of their seats. Accompanied by superb acting and an ingenious plot, the powerful sounds lead the listener to involuntarily fall into the podcast's purposeful trap: one's imagination. Once this begins, scenes of the story become more realistic and close, causing the listener to feel even more frightened.
 
 ## Significance of speech
 A well-written script is vital to a podcast's success, especially for fictional stories like these two. What made these podcasts so great was the authenticity of the conversations. The characters were conversing realistically by awkwardly stumbling over words and accidentally talking over one another. Here are some critical  conversations from both podcasts:
@@ -23,4 +23,4 @@ A well-written script is vital to a podcast's success, especially for fictional 
 - One-on-one therapy session with a recovering military client ("Homecoming")
 - A newly promoted submarine captain calling his crew ("A Drop")
 - Two men secretly scheming behind the captain's back ("A Drop")
-Another important factor of podcasts is a character's tone of voice. Without being able to see any types of body language, actors have to portray emotions through not only what they say, but how they say it.
+Another important factor of podcasts is a character's tone of voice. Without being able to see any types of body language, actors have to portray emotions through not only what they say, but how they say it. In my opinion, this requires the actors to play their roles with vivacity, making podcasts more entertaining.
