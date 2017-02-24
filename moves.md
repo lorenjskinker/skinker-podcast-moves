@@ -18,7 +18,7 @@ Since podcasts contain no visuals, obviously, they must produce sights through a
 As a mysterious thriller, "A Drop in the Ocean" seeks to keep its listeners on the edge of their seats. Accompanied by superb acting and an ingenious plot, the powerful sounds lead the listener to involuntarily fall into the podcast's purposeful trap: one's imagination. Once one begins to imagine the scenes of the story, visions envelope
 
 ## Significance of speech
-A well-written script is vital to a podcast's success, especially for fictional stories like these two. What made these podcasts so great was the authenticity of the conversations. The characters were conversing realistically by awkwardly stumbling over words and accidentally talking over one another. Here are some of the conversations from both podcasts:
+A well-written script is vital to a podcast's success, especially for fictional stories like these two. What made these podcasts so great was the authenticity of the conversations. The characters were conversing realistically by awkwardly stumbling over words and accidentally talking over one another. Here are some critical  conversations from both podcasts:
 - An assistant speaking with an angry boss on the telephone in a busy airport ("Homecoming")
 - One-on-one therapy session with a recovering military client ("Homecoming")
 - A newly promoted submarine captain calling his crew ("A Drop")
