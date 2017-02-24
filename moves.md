@@ -23,4 +23,5 @@ A well-written script is vital to a podcast's success, especially for fictional 
 - One-on-one therapy session with a recovering military client ("Homecoming")
 - A newly promoted submarine captain calling his crew ("A Drop")
 - Two men secretly scheming behind the captain's back ("A Drop")
+
 Another important factor of podcasts is a character's tone of voice. Without being able to see any types of body language, actors have to portray emotions through not only what they say, but how they say it. In my opinion, this requires the actors to play their roles with vivacity, making podcasts more entertaining.
