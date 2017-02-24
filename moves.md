@@ -15,4 +15,7 @@ Since podcasts contain no visuals, obviously, they must produce sights through a
 - Listening to Sonar (A Drop)
 - Water bursting into the sub (A Drop)
 
-As a mysterious thriller, "A Drop in the Ocean" seeks to keep its listeners on the edge of their seats. Accompanied by superb acting and an ingenious plot, the sounds direct the listener to the podcast's purpose: imagination.
+As a mysterious thriller, "A Drop in the Ocean" seeks to keep its listeners on the edge of their seats. Accompanied by superb acting and an ingenious plot, the sounds direct the listener to the podcast's overarching visual dependent: one's imagination. This podcast piggybacks our imagination by relaying sounds that will draw us into the situation. 
+
+## Scripts and tones
+A well-written script is vital for a podcast's success, especially for fictional stories like these two.
